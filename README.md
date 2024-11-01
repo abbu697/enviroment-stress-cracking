@@ -9,4 +9,9 @@ There are affect on the products from the molding machine. When we put different
 
 ![image](https://github.com/user-attachments/assets/a0959475-59ed-4a61-98de-5a5227cae964)
 
+image_from internt.
+
+
+
+
 
